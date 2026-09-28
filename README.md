@@ -222,4 +222,4 @@ Call of Duty 4 is provided as a **full free version** with all features and upda
 Experience the thrill of modern warfare today! **Download Call of Duty 4 for free and immerse yourself in the action!**
 
 ---
-**Last updated:** 2026-09-27 21:48:52 UTC
+**Last updated:** 2026-09-28 00:14:55 UTC
